@@ -20,7 +20,7 @@
 **每日行程**
 -------
  - 靜岡 [連結](https://www.gltjp.com/zh-hant/article/item/11118/)  
- - 靜岡 [連結](https://www.gltjp.com/zh-hant/article/item/11118/)
+ - 靜岡 [連結](https://tc.tabirai.net/sightseeing/article/shizuoka-izu-peninsula-beaches/)
  - 靜岡 [連結](https://www.gltjp.com/zh-hant/article/item/11118/)
  - 靜岡 [連結](https://www.gltjp.com/zh-hant/article/item/11118/)
 
