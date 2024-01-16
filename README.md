@@ -21,7 +21,7 @@
 -------
  - 靜岡 [連結](https://www.gltjp.com/zh-hant/article/item/11118/)  
  - 靜岡 [連結](https://tc.tabirai.net/sightseeing/article/shizuoka-izu-peninsula-beaches/)
- - 靜岡 [連結](https://www.gltjp.com/zh-hant/article/item/11118/)
+ - 富士山 [連結](https://www.kkday.com/zh-tw/product/140458-mount-fuji-one-day-tour?cid=5193&ud1=tw_outbound&ud2=dsatourPBT%3Fadid%3D96&gad_source=1&gclid=CjwKCAiAzJOtBhALEiwAtwj8tuX5pgrVoJvXTXejDIPdbhRWDSzsSdNoUXonwOnkUeR3c89O4VhiRRoCq-YQAvD_BwE)
  - 靜岡 [連結](https://www.gltjp.com/zh-hant/article/item/11118/)
 
 
